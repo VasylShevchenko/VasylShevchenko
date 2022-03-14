@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 I will update this chapter after our victory 🇺🇦
 
 <!--
 **VasylShevchenko/VasylShevchenko** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
